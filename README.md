@@ -11,7 +11,7 @@ I use various applications such as IBM Watson, Google translate, Deepl, Reverso,
 
 My Portfolio of translation/transcription/subtitling/proofreading/voice-over jobs: 
 
-https://drive.google.com/drive/folders/1C6ulWrtmf5k9bWoerP3bSjLV_5Y8aUtE?usp=sharing
+https://www.asuswebstorage.com/navigate/a/#/s/424E963AC88742A48DF445AECF3B7CF3W
 
 Thanks for reading,
 
